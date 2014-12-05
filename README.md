@@ -1,0 +1,4 @@
+stkw
+====
+
+metsis isamrofni wkts
